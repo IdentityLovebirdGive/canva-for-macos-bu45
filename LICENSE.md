@@ -1,4 +1,4 @@
-# 
+# Canva for macOS premium Action: real-time preview & gradient maps is the best Canva for macOS action, featuring real-time preview and gradient maps. Safe, efficient, and optimized
 
 
 
